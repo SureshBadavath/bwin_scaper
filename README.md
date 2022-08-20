@@ -1,1 +1,0 @@
-# bwin_scaper
